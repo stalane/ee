@@ -1,2 +1,2 @@
-## Collection of Energy Efficiency Informational PDF's 
+## Collection of Energy Efficiency Information. Videos and PDF's 
 
